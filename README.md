@@ -1,0 +1,1 @@
+# snapscanpro-privacy
